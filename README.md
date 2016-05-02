@@ -6,7 +6,7 @@
 
 **Star Wars ou Star Trek?**
 
-*R: Star Wars 😂*
+*R: Star Wars* 😂
 
 **Se um cachorro usasse calça, como ele usaria?**
 
